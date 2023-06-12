@@ -1,1 +1,0 @@
-Sinalo's permissions
